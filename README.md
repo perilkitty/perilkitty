@@ -4,7 +4,7 @@
   <code>I want your things in my room,</code>
 </p>
 
-![views](https://komarev.com/ghpvc/?username=killer&label=LV&color=red)
+![views](https://komarev.com/ghpvc/?username=killer&label=LV&color=710C04)
 
 
 ![](https://files.catbox.moe/kn90uq.png)
