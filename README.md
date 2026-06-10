@@ -1,7 +1,7 @@
 <div align="center">
 
 <p align="center">
-  <code>"I want your things in my room,"</code>
+  <code>I want your things in my room,</code>
 </p>
 
 ![views](https://komarev.com/ghpvc/?username=killer&label=LV&color=red)
@@ -18,7 +18,7 @@
   <img src="https://files.catbox.moe/mmf0lg.png" width="140">
 </a>
 <p align="center">
-  <code>"I miss you all of the time"</code>
+  <code>I miss you all of the time</code>
 </p>
 
 </div>
