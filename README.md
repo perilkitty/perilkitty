@@ -1,8 +1,24 @@
-</p>
-<p align="center">im reeaaaal lazy for dis buuuttt feel free to c+h with me its highly encouraged!!! i love c+hing people and cuddling!!!
+<div align="center">
 
+<p align="center">
+  <code>"I want your things in my room,"</code>
 </p>
-<p align="center"> asking to be friends is...err...rare for me to accept, mainly because i only int w people around my age range (16-17...maybe 15-17)...also bc im shy and socially awkward.
 
+![views](https://komarev.com/ghpvc/?username=killer&label=LV&color=red)
+
+
+![](https://files.catbox.moe/gvapzr.png)
+
+<a href="https://lovebitez.atabook.org/">
+  <img src="https://files.catbox.moe/w316ji.png" width="140">
+</a>
+
+    
+<a href="https://rentry.co/smthnew">
+  <img src="https://files.catbox.moe/mmf0lg.png" width="140">
+</a>
+<p align="center">
+  <code>"I miss you all of the time"</code>
 </p>
-<p align="center"> DEFINITELY W2I IM 99 PERCENT OF THE TIME OFFTAB OR BUSY WITH IRL THINGS.
+
+</div>
