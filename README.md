@@ -7,7 +7,7 @@
 ![views](https://komarev.com/ghpvc/?username=killer&label=LV&color=red)
 
 
-![](https://files.catbox.moe/gvapzr.png)
+![](https://files.catbox.moe/kn90uq.png)
 
 <a href="https://lovebitez.atabook.org/">
   <img src="https://files.catbox.moe/w316ji.png" width="140">
