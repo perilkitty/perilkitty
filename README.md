@@ -1,7 +1,7 @@
 im reeaaaal lazy for dis buuuttt feel free to c+h with me its highly encouraged!!! i love c+hing people and cuddling!!!
 
 
-asking to be friends is...err...rare for me to accept, mainly because i only int w people around my age range (16-17...maybe 15-17) and people im shy and socially awkward.
+asking to be friends is...err...rare for me to accept, mainly because i only int w people around my age range (16-17...maybe 15-17)...also bc im shy and socially awkward.
 
 
 **DEFINITELY W2I IM 99 PERCENT OF THE TIME OFFTAB OR BUSY WITH IRL THINGS.**
