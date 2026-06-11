@@ -17,8 +17,9 @@
 <a href="https://rentry.co/smthnew">
   <img src="https://files.catbox.moe/mmf0lg.png" width="140">
 </a>
-<p align="center">$${\color{#F2DBBF} c+h \space always \space encouraged!}$$
-  
+<p align="center">$${\color{#C5C6BF} c+h \space always \space encouraged!}$$
+
+<p align="center">
   <code>I miss you all of the time</code>
 </p>
 
