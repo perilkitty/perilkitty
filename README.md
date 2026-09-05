@@ -29,6 +29,6 @@
   </a>
 </p>
 
-hiiii [my sweetheart <333](https://github.com/Theothebiggerbird) , [my dad <33](https://github.com/Ilohen) , [hii big bro <33](https://github.com/Blood-Lusting) + [yo roland:)](https://github.com/Hauntnet) , [hii mimi](https://github.com/nyanmare) , [hii pix](https://github.com/evostrike) , [hii l*dwig](https://github.com/ger-ita) , [hiii my evil offspring](https://github.com/fremi-net) , [my trio (not on pt)](https://rentry.co/themtt) , [hii goofy](https://github.com/zour-readbyi) , [hiii twin](https://github.com/Sxarixiez)
+hiiii [my sweetheart <333](https://github.com/Theothebiggerbird) , [my dad <33](https://github.com/Ilohen) , [hii big bro <33](https://github.com/Blood-Lusting) + [yo roland:)](https://github.com/Hauntnet) , [hii mimi](https://github.com/nyanmare) , [hii pix](https://github.com/evostrike) , [hii l*dwig](https://github.com/ger-ita) , [hiii my evil offspring](https://github.com/fremi-net) , [my trio (not on pt)](https://rentry.co/themtt) , [hii goofy](https://github.com/zour-readbyi) , [hiii twin](https://github.com/Sxarixiez) , [hii j*no](https://github.com/junob0t)
 
 </div>
